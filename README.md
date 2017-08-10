@@ -14,3 +14,19 @@ We provided the computer and space, and look for people that would like to get t
 
 
 
+
+
+
+
+
+
+
+
+
+
+This was the video that I made to show what the project is about : https://youtu.be/nlhIXkpiXco
+
+Highlights of the video: 
+* We look at the office.
+* He talks breifly about what he studied that day. 
+* Of course the video never made it because he was too shy and had to try multiple times ;) anyway I like it. so here it is
